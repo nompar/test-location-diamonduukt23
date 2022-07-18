@@ -1,1 +1,0 @@
-# test-location-diamonduukt23
